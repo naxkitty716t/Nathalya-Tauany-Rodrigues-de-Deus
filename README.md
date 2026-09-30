@@ -1,3 +1,4 @@
+https://i.pinimg.com/originals/77/4d/7b/774d7bd1a52f74f7036cdc11a32c5eb5.jpg
 #---------Nathalya------Tauany------
 
 ✩__Olá_sou_Nathalya🖐____✩
@@ -5,7 +6,7 @@
 ✩---<img width="557" height="28" alt="image" src="https://github.com/user-attachments/assets/bdf8e958-018b-45ed-bd30-d8ccccf437eb" />---✩
 
 
-♦️-Estou cursando o ensino médio no técnico de sistemas.
+♦️-Estou cursando o ensino médio no técnico de desenvolvimento de sistemas.
 
 ♦️-Que no curso fizermos um fórmulario no Vscode.
 
