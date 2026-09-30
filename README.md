@@ -1,11 +1,12 @@
 #---------Nathalya------Tauany------
 
-♦️__Olá sou Nathalya🖐
+✩__Olá_sou_Nathalya🖐____✩
 
-<img width="600" height="36" alt="image" src="https://github.com/user-attachments/assets/c050efce-2d9c-4b90-859f-a0b1d8888e2b" />
+<img width="550" height="75" alt="image" src="https://github.com/user-attachments/assets/a707b36a-dc94-469c-8f35-0723480bec5e" />
+
 
 ♦️-Estou cursando o ensino médio no técnico de sistemas
 
 ♦️-Que no curso fizermos um fórmulario no Vscode 
 
-<img width="600" height="36" alt="image" src="https://github.com/user-attachments/assets/5b14dc43-2b1c-48a5-982a-59a6b06a3a26" />
+<img width="550" height="75" alt="image" src="https://github.com/user-attachments/assets/ac554bd9-91eb-40b2-8ad6-9c4552885994" />
