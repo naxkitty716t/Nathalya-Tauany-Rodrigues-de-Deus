@@ -1,7 +1,7 @@
 
-#---------Nathalya------Tauany------
+#. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.---------Nathalya------Tauany------. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.#
 
-✩__Olá_sou_Nathalya🖐____✩
+✩-_-_-_-_-_✧˚ ⋆｡˚____Olá_sou_Nathalya🖐____✧˚ ⋆｡˚-_-_-_-_-_✩
 
 ✩---<img width="557" height="28" alt="image" src="https://github.com/user-attachments/assets/bdf8e958-018b-45ed-bd30-d8ccccf437eb" />---✩
 
