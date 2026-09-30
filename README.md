@@ -1,4 +1,4 @@
-<img width="57" height="28" alt="image" src="https://i.pinimg.com/originals/77/4d/7b/774d7bd1a52f74f7036cdc11a32c5eb5.jpg"/>
+<img width="457" height="108" alt="image" src="https://i.pinimg.com/originals/77/4d/7b/774d7bd1a52f74f7036cdc11a32c5eb5.jpg"/>
 #---------Nathalya------Tauany------
 
 ✩__Olá_sou_Nathalya🖐____✩
